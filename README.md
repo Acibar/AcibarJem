@@ -1,7 +1,7 @@
 # AcibarJem
 
 # 💫 About Me:
-Hi! I'm Jemuel B. Acibar and i live in Imus City, Cavite and im 20yrs old
+Hi👋! My name is Jemuel Acibar and I'm a Student from Cavite State University - Imus Campus
 
 
 ## 🌐 Socials:
